@@ -1,0 +1,54 @@
+# VALORANT – Ticking Away ft. Grabbitz & bbno$ (Official Music Video) // VALORANT Champions 2023 Anthem
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:17.23] I need to keep you around, with my feet tied
+[00:23.82] With my feet tied tight to the ground
+[00:27.77] The end's nowhere to be found, I don't know why
+[00:33.99] You don't leave me to drown, oh, oh, oh
+[00:53.49] 
+[00:37.70] Don't know where to go unless you say
+[00:40.01] Don't know what to do unless you stay
+[00:42.62] Thinking that today will be our day
+[00:45.12] Be our day again
+[00:53.12] 
+[00:47.00] Why am I playing with time as it's ticking away?
+[00:53.49] It's tickin' away, away, I'm asking
+[00:58.16] Why we run for our lives, not a second to waste?
+[01:03.66] You're tickin' away, away, away
+[01:19.16] 
+[01:08.24] Alright, let's get it
+[01:10.01] Winnin' (winnin'), losin' (losin'), either way I'm there
+[01:12.77] Gotta attitude, I'm out the roof up in the air
+[01:15.02] This round I make it count, yeah, I'm talkin' right now
+[01:17.22] Feel like the comeback kid, I got no time to spare
+[01:42.22] 
+[01:19.64] Woah, double up the score, turn a two to a four
+[01:22.64] You know I win a lot, gotta win one more
+[01:25.21] On a hot streak, never gets old
+[01:27.15] Solo with the ace, and my team went gold
+[01:47.15] 
+[01:29.58] Why am I playing with time as it's ticking away?
+[01:35.53] It's tickin' away, away, I'm asking
+[01:40.16] Why we run for our lives, not a second to waste?
+[01:45.65] You're tickin' away, away, away
+[02:01.15] 
+[01:56.39] You're ticking away, away, away
+[02:11.89] 
+[02:06.22] You're ticking away, away
+[02:18.72] 
+[02:09.76] I'll give it one more try
+[02:19.57] I don't know why, but I keep coming back every time
+[02:26.15] I want it more than my life
+[02:29.56] I don't know why, but it feels so right
+[02:49.06] 
+[02:38.10] Why am I playing with time as it's ticking away?
+[02:44.27] It's tickin' away, away, I'm asking
+[02:48.03] Why we run for our lives, not a second to waste?
+[02:54.30] It's tickin' away, away, away
+[03:08.80] 
+[03:04.47] It's ticking away, away, away
+[03:18.97] 
+[03:14.55] Ticking away, away, away
+```
